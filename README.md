@@ -1,1 +1,2 @@
 # WorldRobotOlympiad2019
+![Inked75603410_2600493553307094_2255710128005185536_n](https://user-images.githubusercontent.com/100553554/205933454-0318ade0-3a40-4284-9f4b-898a95dfaef3.jpg)
